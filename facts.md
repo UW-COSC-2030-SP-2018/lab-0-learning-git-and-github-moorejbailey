@@ -1,4 +1,4 @@
-# Moore, Joseph (replace with yours)
+# Moore, Joseph 
 List two truths and one lie about you below
 
 1. I am from upstate New York.
